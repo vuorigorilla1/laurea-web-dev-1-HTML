@@ -1,1 +1,1 @@
-tämä nettisivu lempieläimestäni
+nettisivu lempieläimestäni
